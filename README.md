@@ -1,1 +1,1 @@
-See hw9.pdf for our bog post!
+Open hw9.pdf to see our blog post!
